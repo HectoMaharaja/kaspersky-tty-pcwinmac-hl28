@@ -1,4 +1,4 @@
-# 
+# جديد Kaspersky Total Security أدوات لـ Mac OS | متقدم Kaspersky Total Security أدوات لـ PC Windows. مع تحديد المعدل و تقييم الثغرات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
